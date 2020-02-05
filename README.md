@@ -4,7 +4,7 @@
 
 ### Jānis Tone
 
-Combining early summers filled with experience in working with customers and a broad interest in computer sciences, Jānis has up as a communicable and thorough enthusiast in such IT fields as software development, system administration and data analysis.
+Combining early summers filled with experience in working with customers and a broad interest in computer sciences, I have come up as a communicable and thorough enthusiast in such IT fields as software development, system administration and data analysis.
 
 <hr>
 
