@@ -8,4 +8,4 @@ Combining early summers filled with experience in working with customers and a b
 
 <hr>
 
-Check me out on <a href="linkedin.com/in/jānis-tone-649554157">LinkedIn</a>
+Check me out on <a href="https://linkedin.com/in/jānis-tone-649554157">LinkedIn</a>
